@@ -1,6 +1,6 @@
 <h2>SeedHub官网，免费动漫影视种子下载站|网页版入口</h2>
 <p>SeedHub是一个聚合全网最优数字媒体资源的分享平台，每天更新超过260条资源，确保内容的新鲜度和多样性。其特色在于提供高品质的磁力链接下载，涵盖蓝光、4K、HDR等多种画质版本，同时支持迅雷下载工具。网站界面设计简洁直观，用户无需注册即可免费浏览和下载资源。SeedHub还特别注重用户体验，通过优化布局和搜索功能，让用户轻松找到所需内容。</p>
-<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/sites/14496.html" target="_blank" ><strong>SeedHub官网最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://seedhub.wwwnav.com/" target="_blank" ><strong>SeedHub官网最新网址</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank" ><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
